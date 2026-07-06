@@ -1,4 +1,4 @@
-# 
+# Intelligent low cap gem sniper bot scripts pour Mac OS | Premium low cap gem sniper bot scripts pour PC Windows. Avec accès rapide au mempool et indexation de la blockchain — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
